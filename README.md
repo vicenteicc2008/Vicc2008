@@ -10,7 +10,7 @@
 - 📫 How to reach me: 
   - [Personal email](mailto:vicenteicc2008@gmail.com) or [@gus33000](https://twitter.com/Vicente89114566) on Twitter
 
-- 😄 I own a Dog, named Frei because I was going to get it on a Friday, (but didn't in the end, got it monday instead). This dog was abandonned by the previous owner and now owns 99% of my entire house supply of cushions and sofas. I used to own 2 cats as well, both sadly passed away in 2018. I speak both English and French, and German a little.
+- 😄 I own a 3 Dog, named Paloo other named Kayser and other named Carlotta and 4 cats, named Leia, named Chilindrina, named Neddy (Nembri), named Draco I speak both English and French, and German and Spanish a little.
 
 <!--
 **Vicc2008/Vicc2008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
