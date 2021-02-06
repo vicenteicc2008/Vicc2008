@@ -10,7 +10,7 @@
 - 📫 How to reach me: 
   - [Personal email](mailto:vicenteicc2008@gmail.com) or [@gus33000](https://twitter.com/Vicente89114566) on Twitter
 
-- 😄 I own a 3 Dog, named Paloo other named Kayser and other named Carlotta and 4 cats, named Leia, named Chilindrina, named Neddy (Nembri), named Draco I speak both English and French, and German and Spanish a little.
+- 😄 I own a 3 Dogs, named Paloo other named Kayser and other named Carlotta and 4 cats, named Leia, named Chilindrina, named Neddy (Nembri), named Draco I speak both English and French, and German and Spanish a little.
 
 <!--
 **Vicc2008/Vicc2008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
