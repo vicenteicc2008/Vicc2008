@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning telecommunication engineering.
 
 - 📫 How to reach me: 
-  - [Personal email](mailto:vicenteicc2008@gmail.com) or [@gus33000](https://twitter.com/Vicente89114566) on Twitter
+  - [Personal email](mailto:vicenteicc2008@gmail.com) or [@Vicente89114566](https://twitter.com/Vicente89114566) on Twitter
 
 - 😄 I own a 3 Dogs, named Paloo other named Kayser and other named Carlotta and 4 cats, named Leia, named Chilindrina, named Neddy (Nembri), named Draco I speak both English and French, and German and Spanish a little.
 
